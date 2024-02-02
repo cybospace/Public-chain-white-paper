@@ -1,1 +1,0 @@
-# Public-chain-white-paper
